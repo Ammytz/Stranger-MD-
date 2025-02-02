@@ -1,1 +1,1 @@
-# The stranger-MD-
+# Hey👋 this ia the stranger Multi Device
