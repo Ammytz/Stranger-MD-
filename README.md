@@ -1,1 +1,1 @@
-# Hey👋 this ia the stranger Multi Device
+# THE STRANGER MULTI DEVICE 
